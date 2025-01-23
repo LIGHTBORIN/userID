@@ -1,1 +1,1 @@
-Bu mening birinchi GITHUB projektim
+Assalomu alaykum
